@@ -5,4 +5,6 @@ pakistan is not a democracy
 
 
 
-delhi is too hot owdays
+
+delhi is not  too hot owdays
+
